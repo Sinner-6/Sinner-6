@@ -1,3 +1,2 @@
-![68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f64697669646572732f626c6f6f64646976696465722e676966](https://github.com/user-attachments/assets/bf79fa72-b7a7-4e72-a923-165e0229bdc7)
-<img width="550" height="1000" alt="Tears_of_the_Tarnished_Blood_汚血泣淚_Hong_Lu" src="https://github.com/user-attachments/assets/89a8c30a-4f0b-44d2-a296-20cf5036dd0e" />
-![68747470733a2f2f61647269616e73626c696e6b6965636f6c6c656374696f6e2e6e656f6369746965732e6f72672f64697669646572732f626c6f6f64646976696465722e676966](https://github.com/user-attachments/assets/bfac34e1-e0b2-43e4-ad22-752d26e5111f)
+<img width="600" height="1000" alt="Tears_of_the_Tarnished_Blood_汚血泣淚_Hong_Lu" src="https://github.com/user-attachments/assets/89a8c30a-4f0b-44d2-a296-20cf5036dd0e" />
+<img width="263" height="618" alt="Captura de pantalla 2026-01-27 235628" src="https://github.com/user-attachments/assets/8b8a91f6-e6a2-4fdf-841f-206bc9068c84" />
