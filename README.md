@@ -1,1 +1,5 @@
-<img width="800" height="1000" alt="Tears_of_the_Tarnished_Blood_汚血泣淚_Hong_Lu" src="https://github.com/user-attachments/assets/89a8c30a-4f0b-44d2-a296-20cf5036dd0e" />
+<p align="center"><strong>Please don’t copy my skins</strong></p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/c4dbd873-64ca-495f-b49e-547835f92907" width="360" />
+</p>
